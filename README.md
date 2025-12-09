@@ -1,2 +1,2 @@
 # Quiz-2
-[alt text](Screenshot 2025-12-09 110357.png)
+[alt text](file:///C:/Users/user/OneDrive/Pictures/Screenshots/Screenshot%202025-12-09%20110357.png)
